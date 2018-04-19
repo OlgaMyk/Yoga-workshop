@@ -1,2 +1,0 @@
-# Yoga-workshop
-Yolo 
